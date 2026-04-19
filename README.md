@@ -44,8 +44,8 @@ Soy estudiante apasionado por el desarrollo de software, con experiencia en:
 ---
 
 ## 📫 Contacto
-📧 Email: tucorreo@gmail.com  
-📱 Teléfono: +502 XXXX-XXXX  
+📧 Email: mijangosluisfer@gmail.com  
+📱 Teléfono: +502 5417 1888 
 
 ---
 
